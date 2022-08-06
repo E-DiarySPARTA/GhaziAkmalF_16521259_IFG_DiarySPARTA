@@ -1,0 +1,2 @@
+# GhaziAkmalF_16521259_IFG_DiarySPARTA
+Tugas Mentoring Github SPARTA
